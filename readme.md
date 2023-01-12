@@ -11,12 +11,11 @@ PEACE BRO!
  (I praksis betyr det at Henrik slipper å betale gjelda til meg. Henrik gir til Uno.
  
  PS. Jeg tracet key-loggeren som var installert på PCen din. 
- [joke](Haha Henrik, morsom du!)
-
  Har du lyst på kopi av sporingen?
 
  Har du link til musikken din forresten? Som du vet er jeg jævlig lei av Tore Pang :p
  
-
- Mvh,
- Anders Pippi
+ Alt god!
+ t!
+ //ap
+ pippi
