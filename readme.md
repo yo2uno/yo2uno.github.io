@@ -1,4 +1,4 @@
-[UNO YO PEACE BRO!
+![UNO YO PEACE BRO!
 
  Anders Pippi ønsker å formidle følgende beskjed til Uno:
  Henrik har følgende gjeld til meg:
