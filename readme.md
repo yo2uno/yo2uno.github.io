@@ -1,6 +1,4 @@
-UNO
-YO
-PEACE BRO!
+![UNO YO PEACE BRO!
 
  Anders Pippi ønsker å formidle følgende beskjed til Uno:
  Henrik har følgende gjeld til meg:
@@ -18,4 +16,4 @@ PEACE BRO!
  Alt god!
  t!
  //ap
- pippi
+ pippi](https://raw.githubusercontent.com/anderspippi/anderspippi.github.io/main/screencapture.bmp.bmp)
